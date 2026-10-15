@@ -1,2 +1,10 @@
-# coloquio
-Coloquio Luterano · #LUTERANA LIVE · Día de la Asamblea General 2026 · LALM · LALS · LALI
+# Coloquio Luterano · #LUTERANA LIVE
+
+Página del día de la Asamblea General y Reunión Anual 2026 de LALM · LALS · LALI.
+
+- Sitio: https://lutheraninstitute.github.io/coloquio/
+- Invitación oficial: https://lutheraninstitute.github.io/annual-meeting/
+- Martes 20 de octubre de 2026 · 8:30 AM Texas / 7:30 AM Guatemala · Zoom
+- Orden del día según el Artículo XII de los Estatutos (By-Laws) de LALM, distintos de los Artículos de Incorporación de 1936.
+
+☩ Soli Deo Gloria
